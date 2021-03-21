@@ -39,6 +39,6 @@ As they are both young women now, I dream of a gender equal future for them, fre
 
 >> "I hope you find you. I hope you find love."
 
-<iframe frameborder="0" src="https://www.youtube.com/watch?v=C1zQr2gn8xM" allow FullScreen="true"> </iframe>
+<iframe frameborder="0" src="https://www.youtube.com/embed/C1zQr2gn8xM" allow FullScreen="true"> </iframe>
 “Dear Young Woman”: a poem of empowerment - CBC Arts.  
 https://www.youtube.com/watch?v=C1zQr2gn8xM
