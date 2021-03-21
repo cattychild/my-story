@@ -35,7 +35,10 @@ Nonetheless, they feel so distant to me. For the elder one, I was not there when
 
 ### Dear Young Women
 
-As they are both young women now, I dream of a gender equal future for them, free from trafficking, free from violence, and free from unfair treatment in life and work on the sole basis of their gender. Mostly importantly, as a mother, however unqualified I have been, I wish them happiness. 
+As they are both young women now, I dream of a gender equal future for them, free from trafficking, free from violence, and free from unfair treatment in life and work on the sole basis of their gender. Mostly importantly, as a mother, however unqualified I have been, I wish them happiness.
 
-<iframe frameborder="0" scr="https://www.youtube.com/watch?v=C1zQr2gn8xM" allow FullScreen="true"></iframe>
+> I hope you find you. I hope you find love.
+
+<iframe frameborder="0" scr="https://www.youtube.com/watch?v=C1zQr2gn8xM" allow FullScreen="true"> </iframe>
 “Dear Young Woman”: a poem of empowerment - CBC Arts.
+https://www.youtube.com/watch?v=C1zQr2gn8xM
